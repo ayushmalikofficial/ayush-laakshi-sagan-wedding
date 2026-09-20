@@ -1,2 +1,2 @@
-# ayush-laakshi-sagan-wedding
-Ayush &amp; Laakshi Invite
+# Ayush &amp; Laakshi Invite
+Invite for Sagan and Wedding
